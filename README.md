@@ -1,1 +1,7 @@
-# L-p-10a13-nh-m-7
+# Nhóm 7 nè
+Thành viên nhóm
++ Nguyễn Tấn Phát
++ Nguyễn Minh Đức
++ Đào Anh Thư
++ Nguyễn Xuân Phong
++ Nguyễn Tuấn Huy
